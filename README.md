@@ -17,5 +17,3 @@ AP English Language and Composition
 AP English Literature and Composition
 
 AP Microeconomics
-
-AP Macoeconomics
