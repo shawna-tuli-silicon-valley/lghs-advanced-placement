@@ -19,3 +19,7 @@ AP English Literature and Composition
 AP Microeconomics
 
 AP Macroeconomics
+
+![DJ1A9724](https://user-images.githubusercontent.com/19508013/169333446-3d3c0c70-2381-479f-add4-5d911f4bf546.jpeg)
+
+![IMG_5473](https://user-images.githubusercontent.com/19508013/169333509-99aa48d6-1a46-41d0-9e25-49f34ea4738c.jpeg)
