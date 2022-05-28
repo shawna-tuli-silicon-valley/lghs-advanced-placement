@@ -1,4 +1,4 @@
-# Advanced Placement 🌰📖
+![advancedPlacementLogo](https://user-images.githubusercontent.com/19508013/170845696-7b868aff-37a5-462b-8714-2f6cdae06acd.jpg)
 
 I earned an average score of at least 3.5 on all AP Exams taken and scores of three or higher on five or more of these exams:
 
