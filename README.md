@@ -1,4 +1,4 @@
-![lghs](https://user-images.githubusercontent.com/19508013/192878919-616014f1-1fcf-47ff-8fd0-e0d066c2f1f2.jpg)
+![lghs](https://user-images.githubusercontent.com/19508013/192879165-3e2335e3-fd9c-48a6-aa95-2fcfe82867b6.png)
 ![advancedPlacementLogo](https://user-images.githubusercontent.com/19508013/170845696-7b868aff-37a5-462b-8714-2f6cdae06acd.jpg)
 
 I earned an average score of at least 3.5 on all AP Exams taken and scores of three or higher on five or more of these exams:
