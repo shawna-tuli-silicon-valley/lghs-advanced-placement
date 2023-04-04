@@ -14,9 +14,9 @@ AP Psychology
 
 AP Physics C: Mechanics
 
-AP English Language and Composition
+AP English Language & Composition
 
-AP English Literature and Composition
+AP English Literature & Composition
 
 AP Microeconomics
 
