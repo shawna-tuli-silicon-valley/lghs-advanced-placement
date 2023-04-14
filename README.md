@@ -2,7 +2,7 @@
 
 ![advancedPlacementLogo](https://user-images.githubusercontent.com/19508013/170845696-7b868aff-37a5-462b-8714-2f6cdae06acd.jpg)
 
-I earned an average score of at least 3.5 on all AP Exams taken and scores of 3+ on 5 or more of these exams:
+I earned an average score of at least 3.5 on all AP Exams taken & scores of 3+ on 5 or more of these exams:
 
 AP Computer Science A
 
