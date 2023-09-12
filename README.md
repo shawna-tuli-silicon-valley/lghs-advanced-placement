@@ -20,6 +20,8 @@ AP English Literature & Composition
 
 AP Microeconomics
 
+AP United States Government and Politics
+
 AP Macroeconomics
 
 ![DJ1A9724](https://user-images.githubusercontent.com/19508013/169333446-3d3c0c70-2381-479f-add4-5d911f4bf546.jpeg)
